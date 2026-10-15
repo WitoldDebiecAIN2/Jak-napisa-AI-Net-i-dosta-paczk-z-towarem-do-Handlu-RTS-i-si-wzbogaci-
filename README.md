@@ -1,0 +1,1 @@
+# Jak-napisa-AI-Net-i-dosta-paczk-z-towarem-do-Handlu-RTS-i-si-wzbogaci-
