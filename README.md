@@ -5,3 +5,4 @@ Towar można dostać od komputera i od AI z komputera co się tylko marzy.
 Ci politycy są złodziejami z komuny i Socjalizmu i PRL. 
 Oszczędzacze to kanty z kantyny. 
 Skromne życie zostawcie tym z PRL.
+Za miast bożego narodzenia kasa time i czas na spienieżenie towaru z komputera.
